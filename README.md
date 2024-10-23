@@ -1,0 +1,2 @@
+# yoshikawakai.github.ic
+ぼっとんのウェブサイト
